@@ -5,7 +5,7 @@ I'm a student at Johns Hopkins University and a tech enthusiast always exploring
 
 ## 📫 Get in Touch
 - 📧 Email: burakaliunlu@gmail.com
-- 💼 LinkedIn: linkedin.com/in/burak-unlu-840856258
+- 💼 LinkedIn: [linkedin.com/in/burak-unlu-840856258](https://www.linkedin.com/in/burakaliu/)
 - 📷 Instagram: @burakaliunlu
 
 
